@@ -54,3 +54,4 @@ Si mes modèles, scènes ou animations prennent vie dans vos rendus, n'hésitez 
 
 
 **⚠️ Note concernant les droits d'auteur :** J'ai fait de mon mieux pour m'assurer que tout ce contenu est original ou libre de droits. Cependant, vu le volume de fichiers, il est possible qu'une texture, une image ou un objet appartenant à un autre créateur s'y soit glissé. Si vous reconnaissez l'une de vos œuvres et que vous souhaitez être crédité ou demander le retrait du fichier concerné, n'hésitez pas à me contacter en message privé. Je ferai le nécessaire immédiatement !
+betacapital.discord@gmail.com
